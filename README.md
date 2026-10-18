@@ -1,0 +1,1 @@
+# 250030044_kuis_pertemuan2
